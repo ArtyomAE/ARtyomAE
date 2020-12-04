@@ -1,4 +1,4 @@
-![Header](https://i.gifer.com/1QXw.gif)
+![Header](https://media.giphy.com/media/TqiwHbFBaZ4ti/giphy.gif)
 ### My name is Artyom Annin. I'm a beginner Sowtwear Engeneer. I live in Russia
 
 ### Language:
